@@ -1,0 +1,10 @@
+- 👋 Hi, I’m Morphine
+- 👀 I’m interested in [NICHT xD]
+- 💞️ RESEARCH & FULL STACK DEVELOPER
+- 📫 So erreichen Sie mich [NICHT DM <3]
+- ❤ Ich mag Sportwagen und Motorräder
+- 🎁 Ich habe meinen ersten Film auf DEUTSCH produziert [GEHEIM]
+- 👌 Lesen Sie jeden Tag Bücher 
+- 🤢 Ich möchte einmal schlafen, ohne zu überlegen, ich brauche einen tiefen Schlaf, ohne aufzuwachen
+- ✌ Ich vertraue meinem Volk und meiner Familie nicht, also rede nicht mit mir, dass ich dir vertrauen kann
+- 🎶 Menschen sind die dümmsten und schlimmsten „Tiere“ der Welt, kein Hirn, kein Herz
